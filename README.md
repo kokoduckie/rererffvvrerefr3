@@ -1,1 +1,1 @@
-Licence: Copyright rules apply so don't use the project for your own project. You may draw fanart or record gameplay and share it however.
+Licence: Copyright rules apply so don't use the project for your own project. You may do fanfiction (art, writtings, or other media) or record gameplay and share it however. Just don't copy the project as a game.
